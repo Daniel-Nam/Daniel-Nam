@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Daniel-Nam
-- 👀 I’m interested in Front-End
-- 🌱 I’m currently learning React
-- 💞️ I’m looking to collaborate on Facebook
-- 📫 How to reach me ? hoangnam162007@gmail.com
+- 👋 Xin chào, tôi là Nguyễn Hoàng Nam
+- 👀 Hiện tại đang quân tâm về Front-End
+- 📫 Email Chính Thức : hoangnam162007@gmail.com
+- 🤩 Facebook chính thức : [https://www.facebook.com/hoangnam162007](https://www.facebook.com/hoangnam162007)
+- 🕟 Online 24/7
+- ✅ Cảm ơn vì đã đọc, chúc mọi người có một ngày tốt đẹp và thành công ❤️❤️❤️
