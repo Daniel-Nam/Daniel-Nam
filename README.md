@@ -26,4 +26,8 @@
 
 ---
 
-### [![](https://visitcount.itsvg.in/api?id=Daniel-Nam&icon=0&color=1)](https://visitcount.itsvg.in)
+### Thank you for reading 🥰
+
+## [![](https://visitcount.itsvg.in/api?id=Daniel-Nam&icon=0&color=1)](https://visitcount.itsvg.in)
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTSdWWc7tESohKvLYAJytBoTxPcFTXSebPgOQ&usqp=CAU" width="512px">
