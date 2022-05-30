@@ -29,5 +29,3 @@
 ### Thank you for reading 🥰
 
 ## [![](https://visitcount.itsvg.in/api?id=Daniel-Nam&icon=0&color=1)](https://visitcount.itsvg.in)
-
-<div style="width:480px"><iframe allow="fullscreen" frameBorder="0" height="266" src="https://giphy.com/embed/d9P5HfhXRNRj9JDPe9/video" width="480"></iframe></div>
